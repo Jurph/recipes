@@ -4,6 +4,9 @@ _loosely based on Daniel Gritzer's gumbo from Serious Eats_
 Makes about seven quarts 
 
 ## Gumbo spices 
+
+ Measuring this out every time is tedious, and even 1 tsp. of each makes too much for a single batch. Since I make gumbo often, I mix this ahead of time in a large 1-quart jar, using full containers of these spices.
+
 - 2 parts cayenne
 - 2 parts celery salt
 - 1 part paprika
