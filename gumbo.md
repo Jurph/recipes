@@ -1,5 +1,5 @@
 # Chicken & Sausage Gumbo 
-_loosely based on Daniel Gritzer's gumbo from Serious Eats_  
+_loosely based on Daniel Gritzer's gumbo from Serious Eats & Chef Jacob Clark's "Maison Premiere Gumbo"_  
 
 Makes about seven quarts 
 
