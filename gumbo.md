@@ -1,5 +1,6 @@
 # Chicken & Sausage Gumbo 
-_based on Daniel Gritzer's gumbo from Serious Eats_ 
+_loosely based on Daniel Gritzer's gumbo from Serious Eats_  
+
 Makes about seven quarts 
 
 ## Gumbo spices 
