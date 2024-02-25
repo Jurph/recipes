@@ -1,5 +1,6 @@
 # Corn Pone
-from Catherine "Kitty" Pusey's recipe
+Parsons family recipe, 
+from Catherine "Kitty" Pusey's recipe 
 
 ## ingredients 
 - 4c. boiling water
