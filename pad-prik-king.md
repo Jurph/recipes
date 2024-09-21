@@ -1,6 +1,6 @@
 ## Ingredients 
 
-- 1 can Maesri Prik King Curry sauce (green)
+- 1 can Maesri Prik King Curry sauce (in the green can)
 - 3 lbs. thin sliced pork medallions
 - 2 lbs. long podded cowpea / Chinese "long bean" (or substitute French green beans)
 - 1/2 c. brown sugar
