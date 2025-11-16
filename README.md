@@ -3,6 +3,8 @@
 ## Mains 
 - Gumbo
 - Birria
+- Pad Prik King
+- Winter Potato Soup 
 
 ## Brunch
 - Corn Pone 
