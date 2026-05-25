@@ -4,6 +4,7 @@
 - Gumbo
 - Birria
 - Pad Prik King
+- Dan Dan Noodles
 - Winter Potato Soup 
 
 ## Brunch
