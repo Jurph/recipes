@@ -9,6 +9,7 @@
 
 ## Brunch
 - Corn Pone 
+- Kenji's Buttermilk Waffles 
 
 ## Dessert 
 - Oreo Sludge Bars
