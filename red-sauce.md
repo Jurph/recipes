@@ -21,10 +21,10 @@
 2. In a large mixing bowl, crush by hand or with forks/whisks all of the tomatoes until they are a chunky pulp. Reserve 2-3 cups of fresh tomato pulp in the refrigerator. 
 3. Simmer the garlic until fragrant and clear, then add oregano and red pepper flakes. Sprinkle in a generous pinch of salt and black pepper. Stir until the pepper and oregano are aromatic. 
 4. Add the tomatoes to the aromatics and oil and stir thoroughly, mixing in the fish sauce and soy sauce. Plop the onion, basil, and carrots into the sauce whole.  
-5. Put the pot, uncovered, into the hot oven. 
-6. After the first hour, pull the pot back out, add the broth or stock, and scrape down the burned/charred bits. Return to the hot oven. 
-7. Every 30 minutes or so, pull the pot, stir and scrape it down, adding the caramelized & blackened onion bits to the sauce. 
-8. Continue cooking down the sauce until it thickens sufficiently - reduced to 75% or 80% of the original volume is plenty. Remove from heat and pluck out the onion and carrots. 
+5. Put the pot, partly covered, into the hot oven. 
+6. After the first hour, pull the pot back out, add the broth or stock, and scrape down the burned/charred bits. Reduce temperature to 300F and return to the hot oven, uncovered or half-covered, depending on how much the surface is browning. 
+7. Every 30 minutes or so, pull the pot, stir and scrape it down, adding the caramelized & blackened onion bits to the sauce. Adjust the lid to keep the sauce from giving up too much water too fast, and aim for a 4-5 hour cook time. 
+8. Continue cooking down the sauce until it thickens sufficiently - reduced to 80% of the original cook volume is aggressive but rich and delicious. Remove from heat and pluck out the onion and carrots. 
 9. Add the reserved uncooked tomato pulp back to the sauce and combine.  
 10. Taste the resulting sauce and season to taste with salt, pepper, or other herbs. You know what you like.  
 11. Serve over freshly boiled pasta, or set aside in freezer storage containers. 
