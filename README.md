@@ -3,6 +3,7 @@
 ## Mains 
 - Gumbo
 - Birria
+- Frijoles Charros 
 - Pad Prik King
 - Dan Dan Noodles
 - Winter Potato Soup 
